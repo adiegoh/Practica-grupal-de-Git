@@ -11,6 +11,7 @@
 - 1 cucharadita de albahaca seca
 - 1 cucharadita de aceite de oliva
 - Sal y pimienta al gusto
+- Piña
 ## Instrucciones
 
 1. Precalienta tu horno a 220°C (430°F).
@@ -47,3 +48,4 @@ mientos verdes, la cebolla y las aceitunas sobre la pizza.
 - Puedes agregar un poco de chile rojo triturado si te gusta un toque picante.
 
 - Sirve la pizza con una ensalada fresca para una comida completa.
+- Disfrute de una coca cola 
