@@ -48,4 +48,4 @@ mientos verdes, la cebolla y las aceitunas sobre la pizza.
 - Puedes agregar un poco de chile rojo triturado si te gusta un toque picante.
 
 - Sirve la pizza con una ensalada fresca para una comida completa.
-- Disfrute de una coca cola 
+- Disfrute de una coca-cola 
