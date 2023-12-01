@@ -49,3 +49,5 @@ mientos verdes, la cebolla y las aceitunas sobre la pizza.
 
 - Sirve la pizza con una ensalada fresca para una comida completa.
 - Disfrute de una coca-cola 
+- preferiblemnte con borde de queso 
+- pimienta al gusto y jalapeño
