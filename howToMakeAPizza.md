@@ -2,12 +2,8 @@
 - 1/2 taza de salsa de tomate
 - 1 1/2 tazas de queso mozzarella rallado
 - 1/2 taza de champiñones rebanados
-- 1/2 taza de jamón en cubos
-- 1/4 de taza de pimientos verdes en rodajas
-- 1/4 de taza de cebolla en rodajas
-- 1/4 de taza de aceitunas negras en rodajas
+- 1/2 taza de jamón 
 - 1 cucharadita de orégano
-- 1 pisca de cariño
 - 1 cucharadita de albahaca seca
 - 1 cucharadita de aceite de oliva
 - Sal y pimienta al gusto
@@ -50,4 +46,3 @@ mientos verdes, la cebolla y las aceitunas sobre la pizza.
 - Sirve la pizza con una ensalada fresca para una comida completa.
 - Disfrute de una coca-cola 
 - preferiblemnte con borde de queso 
-- pimienta al gusto y jalapeño
